@@ -1,2 +1,0 @@
-# ledmolniyaogon
-Южная Корея
